@@ -1,4 +1,3 @@
 - 👋 Hi, I’m Sanjay
-- 👀 I’m interested in programming
-- 🌱 I’m currently working as a python developer
+- 🌱 Python Developer
 - 📫 E-Mail : sanjayskumar200@gmail.com, Mob: 7510738686

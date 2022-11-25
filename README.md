@@ -1,3 +1,2 @@
 - 👋 Hi, I’m Sanjay
-- 🌱 Python Developer
 - 📫 E-Mail : sanjayskumar200@gmail.com, Mob: 7510738686

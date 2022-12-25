@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Sanjay
-- 📫 E-Mail : sanjayskumar200@gmail.com, Mob: 7510738686
+- 📫 E-Mail : sanjayskumar2022@gmail.com, Mob: 7510738686
